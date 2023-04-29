@@ -1,24 +1,25 @@
 ---
 layout: post
-title: "Some articles are just so short that we have to make the footer stick"
-categories: misc
+title: "Perfume"
+categories: book_review
 ---
 
-seuroufshgfndsg
+What better way to start this blog with a random entity in the world forced to be inflated in value..
 
-sagfkngkasga
+Nope.
 
-lalalallaalalaaaaa
-\oh ymg
+This book, this story is magnificent, irresistable and if i suspect correctly, will leave a long impression on the mind
 
-my name
+I was spellbound by the movie and when i found out there's a book, the opportunity to delve into the story's granularities filled me with deep gratitude.
 
-hey u
-n fja
-ojt ere
+It's a tale of an orphan, born in poverty & disdain of Paris, in the 17th century..
 
-all 
-rnaekd 
-can  fefell me
+This boy curiously is found to possess no smell, and such eeiry occurences cause numerous rotated homes for Grenouille, our protagonist.
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et doafsa commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+As he toils away into his teens, he discovers he has an extraordinary sense of smell. It'd be an abomination to call it a sense and not an entire parallel world he lives in...but, that's what he has. and that's what he intends on getting drunk on.
+In his ardouos pursuit, he finally discovers the peak of this experience, in women.
+
+What follows is an enchanting trip of madness, of logic, of beauty, of soul, of perspective all coloured with the central figure of smell. stench. perfume.
+
+Seeing him grow up, one sees how granouille never was normal or abnormal in the face of expectancy. He simply noticed, saw, sensed, thought differently. When he dies, there's a tinge of sadness, as if he's human or separate from being a beast. And that's where the reader discovers the authors incredible ability to somehow make us resonate with this character. 
+A character, and lens never to be forgotten. 
