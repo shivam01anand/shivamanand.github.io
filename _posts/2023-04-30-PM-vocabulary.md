@@ -24,8 +24,8 @@ Users we want to target.....with our sniper!?
 
 Well, i for one don't want to be "targetted"
 
-Instead..
-How about...
+Instead..\n
+How about...\n
 People we want to help?
 
 By rewriting words in this way, we can promote a more positive, human-centered approach that is not only easier to understand but also subtly influences how we shape experiences for them.
