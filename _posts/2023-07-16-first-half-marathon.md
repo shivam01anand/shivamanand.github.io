@@ -4,35 +4,26 @@ title: "Journey through a first half marathon"
 categories: language
 ---
 
-Describing it in a positive/negative way doesn't do justice to these pursuits. Even a project report talking about goals achieved, timings doesn't hit the spot.
+Describing pursuits in a positive/negative framework doesn't say much, neither does a project report talking about goals, timings & other abstract things.
 
-Sure, my training was incomplete. 
-Sure, i missed my a,b,c,d targets.
-Sure, i was way behind the pack.
-Sure, my broken body was rightfully sarcastically applauded "nice training!" (by the organizing team no less LOL)
-Sure, everything hurts right now, half a day later.
-    - Calves pulsated like it had it's own heartbeat. 
-    - My butts were hurting. Butts! The loyal support you rely on for 12 hours a day gave up.
-    - Heels were on fire. I know how pam felt. 
-    - Knees hurt so much that my road accident from years ago felt like a joke. And those wounds used to hurt so much, even touching it generated visuals.
-    - My back hurts. Don't know how, and how shoulders feel file.
-
-"Objectively" speaking, it was terrible but there's a story here. One deserving a firm note in life's diary.
-
-The day before my run, I had stuffed chicken breast with spanish/cheese, egyptian pizza, dimsums, peshwari tikka, pasta. Pleasing the senses, before breaking self. 
+The day before my run, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. Pleased the senses, before punishing it's vehicle.
 
 Day of the run.
+I couldn't have constructed a better setting. The race's kick off was beautifully set up by a pleasing drizzle in the sunrise, with loud drums charging up the runners.
+A bollywood story has one protagonist, here there were 1000s. Each stretching their selves in unique ways, my non existent routine was marvelling at them. Figured might as well observe the pros if this is going to be my beginner attempt.
 
-I couldn't have imagined a better setting. The race's kick off was beautifully set up by a pleasing drizzle in the sunrise, with loud drums cheering the runners.
-A bollywood story has one protagonist, here there were 1000s. Each stretching their selves in unique ways, my non existent routine was marvelling at them. Might as well observe the pros if this is going to be my beginner attempt.
+Coach benett's marathon playlist from NRC, tucked in headphones, began with a warning. 
 
-Coach benett's marathon playlist from NRC, tucked in headphones, begins with a warning of the automatic human desire to pick up pace when passed by another human. Sure enough i find myself accelerate intermittently when bodies near me. This is clearly not a solo run in isolation. This is a group thing.
+Of the automatic human desire to pick up pace when passed by another human. Sure enough i noticed myself accelerate whenever a body entered my private space, of which there wasn't much. This is clearly not a solo run in isolation. This is going to be a group thing.
 
-I start understanding my friends' strava posts where they do race distances in their backyards - free of lines, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line, the pomp.
+Anyone who sees grown ups waking up at 4 am on a Sunday to run won't hesistate to call these crazies a tribe. 
 
-The pomp is doing nothing for me - it should, based on probability. I've seen countless posts about race stoke, how others energies shot them to unbelievable timings.
+I start understanding my friends posts where they ran long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line almost teasing your 21k resolve, the...pomp
 
-As i stroll forward - I'm hit with unempathetic smiles from happy runners. It's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings.
+The pomp is surprisingly not helping me yet. I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere the postivity..god damn it. 
+
+As i stroll forward, in pain, the glue of my resolve softened in the rain - I'm hit with unempathetic beaming smiles from happy runners. Fuck you. 
+Alas, It's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
 
 I reach 5k. faster than my training pace. I can't help marvel at the oddities around me - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
 
@@ -73,3 +64,16 @@ Part of why i love coach benett's programme, is because he does not care about t
 I loved the part where i hid my watch from me, so i could run freely. It was an attempt to realign my style with my goal.
 
 Being free.
+
+Sure, my training was incomplete. 
+Sure, i missed my a,b,c,d targets.
+Sure, i was way behind the pack.
+Sure, my broken body was rightfully sarcastically applauded "nice training!" (by the organizing team no less LOL)
+Sure, everything hurts right now, half a day later.
+    - Calves pulsated like it had it's own heartbeat. 
+    - My butts were hurting. Butts! The loyal support you rely on for 12 hours a day gave up.
+    - Heels were on fire. I know how pam felt. 
+    - Knees hurt so much that my road accident from years ago felt like a joke. And those wounds used to hurt so much, even touching it generated visuals.
+    - My back hurts. Don't know how, and how shoulders feel file.
+
+"Objectively" speaking, it was terrible but there's a story here. One deserving a firm note in life's diary.
