@@ -4,30 +4,36 @@ title: "Journey through a first half marathon"
 categories: language
 ---
 
-Describing pursuits in a positive/negative framework doesn't say much, neither does a project report talking about goals, timings & other abstract things.
+When the pursuit is just a hobby, and you're not going for olympics should you really do a project report talking about goals, timings?
 
-The day before my run, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. Pleased the senses, before punishing it's vehicle.
+Day of the run's finally here after months of midnight runs.
 
-Day of the run.
-I couldn't have constructed a better setting. The race's kick off was beautifully set up by a pleasing drizzle in the sunrise, with loud drums charging up the runners.
-A bollywood story has one protagonist, here there were 1000s. Each stretching their selves in unique ways, my non existent routine was marvelling at them. Figured might as well observe the pros if this is going to be my beginner attempt.
+For my last supper, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. Enjoyment then pain, this cycle of life.
 
-Coach benett's marathon playlist from NRC, tucked in headphones, began with a warning. 
+I couldn't have thought of a better setting for the race. 
+At 4 am (okay not quite ideal), we took our positions amidst a welcoming drizzle from the sunrise, with loud drums charging everyone, punjabi style.
 
-Of the automatic human desire to pick up pace when passed by another human. Sure enough i noticed myself accelerate whenever a body entered my private space, of which there wasn't much. This is clearly not a solo run in isolation. This is going to be a group thing.
+While a bollywood story has one protagonist, here there were 1000s. Some running 21k, some 2k. 70s, single digits. Army folks, obese netflix enthusiasts.  
 
-Anyone who sees grown ups waking up at 4 am on a Sunday to run won't hesistate to call these crazies a tribe. 
+Each stretching their bodies in unique ways, my non existent routine was marvelling at them. Figured might as well observe the pros if this is going to be my beginner attempt.
 
-I start understanding my friends posts where they ran long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line almost teasing your 21k resolve, the...pomp
+Coach benett's marathon playlist from NRC, tucked in headphones, kicks off the "race" with a warning. 
+The automatic human desire to pick up pace when passed by another human, and how one needs to ignore by trusting in training. Sure enough i noticed myself accelerate whenever a body entered my private space, of which there wasn't much. 
 
-The pomp is surprisingly not helping me yet. I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere the postivity..god damn it. 
+This is clearly not a solo run in isolation. This is going to be a group thing.
+The group of crazies, running at 4 am on a Sunday. Weaving between cars, on an iconic but very public road.
+
+I start appreciating my friends posts where they ran long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line almost teasing your 21k resolve, the...pomp
+
+The pomp is surprisingly not helping me at all. 
+I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere, the radiant postivity floating in the air..I start cursing those missing elements as my legs start hurting in new places.
 
 As i stroll forward, in pain, the glue of my resolve softened in the rain - I'm hit with unempathetic beaming smiles from happy runners. Fuck you. 
-Alas, It's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
+Alas, it's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
 
-I reach 5k. faster than my training pace. I can't help marvel at the oddities around me - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
-
-Building focus is a challenge, i get to 10k but the pain's shooting up. It's clear my targets are in danger.
+5k is crossed, a races finishes here, the dispersion of people near me is more than welcome.
+Yet i can't help but marvel at oddities in even distant views - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
+Building focus is a challenge in this fascinating opposite-of-cruise ship, i get to 10k but the pain's shooting up. It's clear my targets are in danger.
 
 I attempt that thing where you dedicate each km to someone you love. parents, family, loves, dead friends -- however all the slideshows are crisp & quickly disappear from my clear mind.
 
