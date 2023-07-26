@@ -59,9 +59,10 @@ Songs, they helped. They just weren't loud enough.
 
 Meanwhile the sweating made my watch somehow press the finish button. When everything is drenched, how exactly do you wipe off sweat from phone, when you want to reconnect to your headphones? this was not part of the script (there was no script but who's script would have this problem?)
 
+I'm in the final stretch.
 My goal of running, forget the HM, was to master breathing, power & space in head.
 
-I realize I'm glad i'm running this HM. I welcome all opportunities at masochism. It's an exercise in overcoming defeated thoughts. I gave myself a bank of 20 points, consuming which i'd allow myself a rest. I deducted points each time i overcame a negative thought of wanting to rest prematurely. How creative our minds are rational those thoughts are from the human mind. 
+I realize I'm glad i'm running this HM. I welcome all opportunities at masochism. It's an exercise in overcoming defeated thoughts. I gave myself a bank of 20 points, consuming which i'd allow myself a rest. I deducted points each time i overcame a negative thought of wanting to rest prematurely. How creative our minds are. It knows it'll think of rational arguments to convince itself to slow down, stop, give in. That's why they say to run with your heart not your mind.
 
 Is my "first" HM tainted from poor results? I do not care about the numbers - how a run went, or which run it was. As long as it was a run i got to experience.
 
