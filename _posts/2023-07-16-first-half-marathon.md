@@ -4,47 +4,51 @@ title: "Journey through a first half marathon"
 categories: language
 ---
 
-When the pursuit is just a hobby, and you're not going for olympics should you really do a project report talking about goals, timings?
+When a pursuit is merely following a hobby, and you're not going for olympics should you really do a project report talking about goals, timings?
 
 Day of the run's finally here after months of midnight runs.
 
 For my last supper, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. Enjoyment then pain, this cycle of life.
 
-I couldn't have thought of a better setting for the race. 
-At 4 am (okay not quite ideal), we took our positions amidst a welcoming drizzle from the sunrise, with loud drums charging everyone, punjabi style.
+I'm up at 3:50 AM. 
+Not that i'd ever ask for an ~ideal~ any scenario involving 4 AM awakenings, I really couldn't have imagined of a better setting raceday. 
+We arrived in our positions and were immediately welcomed by drizzle with loud drums charging everyone, punjabi style.
 
 While a bollywood story has one protagonist, here there were 1000s. Some running 21k, some 2k. 70s, single digits. Army folks, obese netflix enthusiasts.  
 
-Each stretching their bodies in unique ways, my non existent routine was marvelling at them. Figured might as well observe the pros if this is going to be my beginner attempt.
+Each stretching their bodies in unique ways, my non existent routine was marvelling at them. Figured i'd observe the pros if this is going to be my beginner attempt.
 
-Coach benett's marathon playlist from NRC, tucked in headphones, kicks off the "race" with a warning. 
-The automatic human desire to pick up pace when passed by another human, and how one needs to ignore by trusting in training. Sure enough i noticed myself accelerate whenever a body entered my private space, of which there wasn't much. 
+Coach benett's marathon playlist from NRC, tucked in headphones, kicks off the "race" with a warning.
 
+Describing the automatic human desire to pick up pace when passed by another human, and how one needs to ignore by trusting in training. Sure enough i noticed myself accelerate whenever a body entered my private space, of which there wasn't much. 
 This is clearly not a solo run in isolation. This is going to be a group thing.
-The group of crazies, running at 4 am on a Sunday. Weaving between cars, on an iconic but very public road.
 
-I start appreciating my friends posts where they ran long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line almost teasing your 21k resolve, the...pomp
+Group of crazies, running at 4 AM Sunday. Weaving between cars, on a very public road albeit iconic.
 
-The pomp is surprisingly not helping me at all. 
-I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere, the radiant postivity floating in the air..I start cursing those missing elements as my legs start hurting in new places.
+I begin appreciating my friends posts where they run long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line which feels like your 21k resolve is being teased & the pomp of it.
 
-As i stroll forward, in pain, the glue of my resolve softened in the rain - I'm hit with unempathetic beaming smiles from happy runners. Fuck you. 
+The pomp is surprisingly, sadly & lamely not helping at all. 
+I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere, the radiant postivity floating in the air..I start cursing those MIA elements in this promised land, as my legs start hurting in new places. Bones, Muscles i'm sure didn't exist before this run.
+
+Moreover, as i stroll forward, visibly in pain, the glue of my resolve softened in the rain - My eyes are met by unempathetic beaming smiles from happy runners. Fuck you. 
 Alas, it's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
 
 5k is crossed, a races finishes here, the dispersion of people near me is more than welcome.
-Yet i can't help but marvel at oddities in even distant views - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
+Granted i couldn't help but marvel at oddities in even distant views - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
 Building focus is a challenge in this fascinating opposite-of-cruise ship, i get to 10k but the pain's shooting up. It's clear my targets are in danger.
 
-I attempt that thing where you dedicate each km to someone you love. parents, family, loves, dead friends -- however all the slideshows are crisp & quickly disappear from my clear mind.
+I attempt that thing where you dedicate each km to someone you love. parents, family, loves, dead friends -- however all the slideshows are crisp & quickly disappear away from my clear mind.
 
-I understand now why i couldn't drift into more distracting thoughts. I never managed to hit a flow state.
-Should i take the cycle path for this stretch? Where are the cars coming from at intersection? Where are the stalls? Should i run straight here or turn left? Do i want the banana or the nuts from the stall? 
-Too many conscious decisions!
+I understand now why i couldn't drift into more distracting thoughts. I never managed to hit flow state.
+Should i take the cycle path for this stretch? Where are the cars coming from at intersection? When will the next water stall arrive? Should i run straight here or turn left? Do i eat the banana or the nuts? 
+Too many conscious decisions! 
 
-The terrain, race track should be known and visualized before hand. Or even better, practise in random places so you retain joy of randomness but aren't facing new flavours of questions race day.
-My practise was running alone at 12 am in a private park. I was almost always in trance in those silent nights.
+During training, i used to run on an isolated road (at midnight, no less) and since i never ran more than 12k, i never needed water/snacks. I was almost always in trance in those silent nights.
 
-I card loaded last 3-4 days, i'm eating banana glucon-d nuts at the periodic stalls in the race. I'm not sure which is helping which, whether i'll have accurate data for analysis to inform next time.
+But race day? The terrain, race track should be known and visualized before hand. 
+Better yet, practise in random places so you retain joy of randomness but aren't facing new flavours of questions race day.
+
+i'm eating banana glucon-d nuts at the periodic stalls in the race, but I'd also card loaded last 3-4 days. So i'm not sure which is really helping more at this point. 
 
 It doesn't matter, This 10k-15k is all about managing to give myself a chance to sprint the finale, and get to a respectable (how do you define respect for "races" you didn't set out to win? how important then are those personal targets?)
 
