@@ -4,19 +4,26 @@ title: "Journey through a first half marathon"
 categories: language
 ---
 
-When a pursuit is merely following a hobby, and you're not going for olympics should you really do a project report talking about goals, timings?
+What should that journey read like?
 
-Day of the run's finally here after months of midnight runs.
+When a pursuit is born from an adult finding a hobby (and we all know how difficult that is), you're not aiming for olympics or anything tangible, really. 
+So should one really do a refined project report talking about goals, timings...? I refuse to play a game i'm not gonna win, participation trophy is as boring as it sounds.
 
-For my last supper, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. Enjoyment then pain, this cycle of life.
+So, just focus on the moments. Inside, Outside.
+
+Day of the run's finally here after months of midnight runs. OK.
+
+For my last supper, I had chicken breast with spanish/cheese stuffings, egyptian pizza, dimsums, peshwari tikka, pasta. 
+Enjoyment then pain, this cycle of life.
 
 I'm up at 3:50 AM. 
-Not that i'd ever ask for an ~ideal~ any scenario involving 4 AM awakenings, I really couldn't have imagined of a better setting raceday. 
-We arrived in our positions and were immediately welcomed by drizzle with loud drums charging everyone, punjabi style.
+Not that i'd ever imagine perfect scenarios which involve waking up at 4, I really couldn't have pictured a more exciting scenery on raceday. 
+We were welcomed by cool drizzling, the clouds getting to work early for us.
+In the background, we had loud drums charging everyone, punjabi style.
 
-While a bollywood story has one protagonist, here there were 1000s. Some running 21k, some 2k. 70s, single digits. Army folks, obese netflix enthusiasts.  
+While a bollywood story has one protagonist, here there were 1000s. Some running 21k, some 2k. 70s, little toothless kids. Army folks, obese netflix enthusiasts. It was fascinating.
 
-Each stretching their bodies in unique ways, my non existent routine was marvelling at them. Figured i'd observe the pros if this is going to be my beginner attempt.
+Each stretching their bodies in unique ways, my non existent routine involved marvelling at them. Figured i'd observe the pros if this is going to be my beginner attempt.
 
 Coach benett's marathon playlist from NRC, tucked in headphones, kicks off the "race" with a warning.
 
@@ -85,6 +92,6 @@ Sure, everything hurts right now, half a day later.
     - My butts were hurting. Butts! The loyal support you rely on for 12 hours a day gave up.
     - Heels were on fire. I know how pam felt. 
     - Knees hurt so much that my road accident from years ago felt like a joke. And those wounds used to hurt so much, even touching it generated visuals.
-    - My back hurts. Don't know how, and how shoulders feel file.
+    - My back hurts. Don't know how, and how my shoulders feel file.
 
 "Objectively" speaking, it was terrible but there's a story here. One deserving a firm note in life's diary.
