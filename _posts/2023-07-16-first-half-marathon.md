@@ -6,8 +6,10 @@ categories: language
 
 What should that journey read like?
 
-When a pursuit is born from an adult finding a hobby (and we all know how difficult that is), you're not aiming for olympics or anything tangible, really. 
-So should one really do a refined project report talking about goals, timings...? I refuse to play a game i'm not gonna win, participation trophy is as boring as it sounds.
+Should one do a project report talking about goals, timings...? 
+
+When a pursuit is born from an adult finding a hobby (and we all know how difficult that is), you're not really aiming for the olympics. Or anything tangible, really. 
+So I refuse to play a game i'm not gonna win, a participation trophy is exactly as numbing as it sounds.
 
 So, just focus on the moments. Inside, Outside.
 
@@ -17,11 +19,13 @@ For my last supper, I had chicken breast with spanish/cheese stuffings, egyptian
 Enjoyment then pain, this cycle of life.
 
 I'm up at 3:50 AM. 
+
 Not that i'd ever imagine perfect scenarios which involve waking up at 4, I really couldn't have pictured a more exciting scenery on raceday. 
 We were welcomed by cool drizzling, the clouds getting to work early for us.
-In the background, we had loud drums charging everyone, punjabi style.
+In the background, we had loud drums charging everyone, punjabi style..
 
-While a bollywood story has one protagonist, here there were 1000s. Some running 21k, some 2k. 70s, little toothless kids. Army folks, obese netflix enthusiasts. It was fascinating.
+While a bollywood story has one protagonist, here there were 1000s. 
+Some running 21k, some 2k. 70s, little toothless kids. Army folks, obese netflix enthusiasts. It was fascinating.
 
 Each stretching their bodies in unique ways, my non existent routine involved marvelling at them. Figured i'd observe the pros if this is going to be my beginner attempt.
 
@@ -32,21 +36,21 @@ This is clearly not a solo run in isolation. This is going to be a group thing.
 
 Group of crazies, running at 4 AM Sunday. Weaving between cars, on a very public road albeit iconic.
 
-I begin appreciating my friends posts where they run long distances in their backyards - free of competition, anxiety of approaching cars, the boy who stops to inquire about the 2k finish line which feels like your 21k resolve is being teased & the pomp of it.
+I begin appreciating my friends posts where they run long distances in their backyards - free of competition, anxiety of approaching cars, kids who stop you to inquire about the 2k finish line testing your resolve to run 21k, the pomp of it.
 
 The pomp is surprisingly, sadly & lamely not helping at all. 
 I'd seen countless posts about race stoke, how others energies shot them to unbelievable timings, the atmosphere, the radiant postivity floating in the air..I start cursing those MIA elements in this promised land, as my legs start hurting in new places. Bones, Muscles i'm sure didn't exist before this run.
 
-Moreover, as i stroll forward, visibly in pain, the glue of my resolve softened in the rain - My eyes are met by unempathetic beaming smiles from happy runners. Fuck you. 
-Alas, it's not their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
+Moreover, as i stroll forward, visibly in pain, the glue of my resolve softened in the rain - My eyes are met by unempathetic beaming smiles from happy runners. Why don't you just fuck off?
+To be honest, it isn't their fault - they just aren't in enough pain, and their unmasked endorphins only intensifies the gulf in feelings. Making those interactions highly charged.
 
 5k is crossed, a races finishes here, the dispersion of people near me is more than welcome.
 Granted i couldn't help but marvel at oddities in even distant views - a south indian running barefoot with a banner written in marathi (a language no one understands here), an overweight aunt also running 21k (who rests against me later on when she was about to pass out). 
 Building focus is a challenge in this fascinating opposite-of-cruise ship, i get to 10k but the pain's shooting up. It's clear my targets are in danger.
 
-I attempt that thing where you dedicate each km to someone you love. parents, family, loves, dead friends -- however all the slideshows are crisp & quickly disappear away from my clear mind.
+I attempt that thing where you dedicate each km to someone you love. parents, family, loves, dead friends -- however all the slideshows are crisp & quickly disappear away from my clear mind. Oh clear mind, how noble of you to arrive once in my life precisely when i least needed you.
 
-I understand now why i couldn't drift into more distracting thoughts. I never managed to hit flow state.
+I know why i couldn't drift into more distracting thoughts. I never managed to hit flow state.
 Should i take the cycle path for this stretch? Where are the cars coming from at intersection? When will the next water stall arrive? Should i run straight here or turn left? Do i eat the banana or the nuts? 
 Too many conscious decisions! 
 
