@@ -1,18 +1,15 @@
-Why am i tracking them all?
+# Why am I tracking them all?
 
-These are obviously people who've devoted their lives into this field, 
-so i'd love to explore every "Type" of excavations they've found into the self - emotions, memories, attitudes, reactions etc.
+These are obviously people who've devoted their lives to this field, and I'm eager to explore every "Type" of excavation they've unearthed related to the self - including emotions, memories, attitudes, reactions, etc.
 
-Why am i writing them all?
+## Why am I writing them all?
 
-To build a toolkit, i've found the box breathing to be immediately useful in meetings, exercise holds etc. Why not build a swiss knife tool filled with those tools?
+To build a toolkit. I've found box breathing to be immediately useful in meetings, exercise holds, etc. Why not build a Swiss Army knife filled with those tools?
 
-The main avenues are 
+### The main avenues are
 
-- Alo Moves
-- Balance
-- Waking up
+- **Alo Moves**: A platform that deserves its own space for its unique offerings.
+- **Balance**: Another significant avenue, meriting separate consideration.
+- **Waking Up**: A unique space for mindfulness and meditation.
 
-Each deserves their own space, where they'll reside.
-
-I'd add youtube too if i find structure to categorise it's type
+Additionally, I'd consider adding **YouTube** to this list if I find a structured way to categorize its content types.
